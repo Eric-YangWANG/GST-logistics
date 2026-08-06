@@ -2,7 +2,7 @@
 
 > \*\*作者\*\*：王阳 ｜ \*\*公众号\*\*：王阳在格物  
 > \*\*发布时间\*\*：2026-07-28 00:40  
-> \*\*原文链接\*\*：\[微信原文](https://mp.weixin.qq.com/s/jt9o8nsH1kX4dOcik\_5GpQ)
+> \*\*原文链接\*\*：\[微信原文](https://mp.weixin.qq.com/s/jt9o8nsH1kX4dOcik_5GpQ)
 
 \---
 
